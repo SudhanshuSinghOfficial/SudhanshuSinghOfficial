@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 🔭 I’m currently working on **Made In India Apps**<br><br>- 🌱 I’m currently learning **Gen-AI , AI INTEGRATION**<br><br>- 🤝 I’m looking for help with **OS**<br><br>- 👨‍💻 All of my projects are available at [www.sudhanshusinghofficial.in](www.sudhanshusinghofficial.in)<br><br>- 📝 I regularly write articles on [www.sudhanshusinghofficial.in/blogs](www.sudhanshusinghofficial.in/blogs)<br><br>- 💬 Ask me about **React**<br><br>- 📫 How to reach me **iamsudhanshusinghofficial@gmail.com**<br><br>- 📄 Know about my experiences [www.sudhanshusinghofficial.in/resume](www.sudhanshusinghofficial.in/resume)<br><br>- ⚡ Fun fact **I Think I am Funny**<br>
+🔭 I’m currently working on **Made In India Apps**<br><br> 🌱 I’m currently learning **Gen-AI , AI INTEGRATION**<br><br> 🤝 I’m looking for help with **OS**<br><br> 👨‍💻 All of my projects are available at [www.sudhanshusinghofficial.in](www.sudhanshusinghofficial.in)<br><br> 📝 I regularly write articles on [www.sudhanshusinghofficial.in/blogs](www.sudhanshusinghofficial.in/blogs)<br><br> 💬 Ask me about **React**<br><br> 📫 How to reach me **iamsudhanshusinghofficial@gmail.com**<br><br> 📄 Know about my experiences [www.sudhanshusinghofficial.in/resume](www.sudhanshusinghofficial.in/resume)<br><br>- ⚡ Fun fact **I Think I am Funny**<br>
 
 
 ## 🌐 Socials:
